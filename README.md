@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games, k-pop and mangas
 - 🌱 I’m currently learning how to just cod properly
 - 😄 Pronouns: she/elle
-- ⚡ Fun fact: I have more than 80k minutes of listening on apple music this year.
+- ⚡ Fun fact: I have over 80k minutes of listening time on apple music this year.
 
 <!---
 xaoraa/xaoraa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
